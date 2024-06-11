@@ -5,3 +5,7 @@ I work as a Data Analyst Intern at Inforens in London, where I leverage advanced
 I'm currently pursuing further studies at Queen Mary University of London.
 
 I love connecting with fellow data enthusiasts and sharing my journey, skills, and experiences.
+
+LinkedIn  ➡︎ https://www.linkedin.com/in/yashas-ravichandra
+
+Gmail     ➡︎ yashasravi38@gmail.com

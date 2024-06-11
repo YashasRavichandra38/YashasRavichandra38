@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋, My name is Yashas Ravichandra
 
 I work as a Data Analyst Intern at Inforens in London, where I leverage advanced statistical techniques to drive user engagement and retention in the educational sector.
 

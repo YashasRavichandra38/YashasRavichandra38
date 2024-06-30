@@ -9,3 +9,5 @@ I love connecting with fellow data enthusiasts and sharing my journey, skills, a
 LinkedIn  ➡︎ https://www.linkedin.com/in/yashas-ravichandra
 
 Gmail     ➡︎ yashasravi38@gmail.com
+
+Portfolio website ➡︎ https://yashasravi38portfolio.carrd.co/
